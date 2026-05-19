@@ -100,8 +100,7 @@ https://iamshobhitagarwal.gumroad.com/l/tbrbyp
 
 # Sample Chapters
 
-📘 Sample Chapters Preview:  
-https://drive.google.com/file/d/19zzSigNVu4DZVXn_B50ZmO3vtULm8Qso/view?usp=drive_link
+👉 [Read Sample Chapters](./Chapter-2_4.pdf)
 
 ---
 
